@@ -1,0 +1,1 @@
+# 2-sinif-turkce-seruven-kitap-32
